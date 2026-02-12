@@ -11,6 +11,8 @@ i heavily fictkin sean becauze i relate to him. I am under the trans umbrella,, 
 
 i am dealing with nervousness (it can be severe , idk), depression (it has been going for years, no treatment), severe fear of being judged, uncontrolled hormones (i get too freaky a LOT, please understand this :[ ), etc.
 
+i can be avoidant or distant,, and i isolates myself aalot
+
 i block freely. dni darkshipper/ *SOME* proshippers. (I still respect you all even if you're on my dni list.)
 
 ok bye alzo maybe more in my prns page or strawpage.
