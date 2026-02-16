@@ -32,7 +32,7 @@ _stares intensely into ur soul_
 
 ᛝ i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc. ꨄ︎
 
-ᛝ i block freely. dni darkshipper/ *SOME* proshippers. (I still respect you all even if you're on my dni list.) ⟢
+ᛝ i block freely. dni darkshipper/ *SOME* proshippers. ⟢
 
 ~  dni list :
 1. homophobic, transphobic, islamophobic, etc.
