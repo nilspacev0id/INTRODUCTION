@@ -20,3 +20,4 @@ i can be avoidant or distant,, and i isolates myself aalot ..         i avoid co
 i block freely. dni darkshipper/ *SOME* proshippers. (I still respect you all even if you're on my dni list.)
 
 ok bye alzo maybe more in my prns page or strawpage.
+#68C0C8
