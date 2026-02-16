@@ -9,8 +9,10 @@ feel free to call me any namez (except if it actually makes me uncomfortable)
 
 
 
-<img width="220" height="364" alt="chibi_sean_seildirectory_roblox_Sean-removebg-preview" src="https://github.com/user-attachments/assets/344bc6aa-5bc6-4187-ab0e-bea5f5a0ff1a" />
-hh chibi
+<img width="110" height="257" alt="chibi_sean_seildirectory_roblox_Sean-removebg-preview" src="https://github.com/user-attachments/assets/344bc6aa-5bc6-4187-ab0e-bea5f5a0ff1a" />
+
+wowow sean
+
 
 
 i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc.
