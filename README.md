@@ -13,7 +13,6 @@ feel free to call me any namez (except if it actually makes me uncomfortable) �
 
 │ ּ ֶָ֢. ℋeavy 𝒮ean ℱictkin ...  ᶻ 𝗓 𐰁
 
- 
 │
 
 │
@@ -34,5 +33,18 @@ _stares intensely into ur soul_
 ᛝ i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc. ꨄ︎
 
 ᛝ i block freely. dni darkshipper/ *SOME* proshippers. (I still respect you all even if you're on my dni list.) ⟢
+
+~  dni list :
+1. homophobic, transphobic, islamophobic, etc.
+2. sexualizes minors, m.a.p, joking about r4pes, or any stuff related to those.
+3. boundary/personal space breaker
+
+▀▄▀▄▀▄ ℬorder 2nd `✦︎
+
+|
+
+|
+
+|
 
 ᛝ ok bye alzo maybe more in my prns page or strawpage. ˗ˏˋ ♡ ˎˊ˗
