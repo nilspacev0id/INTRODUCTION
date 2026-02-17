@@ -10,6 +10,7 @@ feel free to call me any namez (except if it actually makes me uncomfortable) �
 ‎ 
 
 ‎ 
+‎ 
 ‎   @ ɑׁׅ֮sk me / say something ~ : https://ngl.link/riuupecintanasgor.no.1
 ‎ 
 
