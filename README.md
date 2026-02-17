@@ -7,15 +7,19 @@
 ⌞ ⌝ welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius. ༝༚༝༚ ˎˊ˗
 feel free to call me any namez (except if it actually makes me uncomfortable) ༝༚༝༚ ˎˊ˗
 
-│
+‎ 
 
-│
+‎ 
+‎   ɑׁׅ֮sk me / say something ~ : https://ngl.link/riuupecintanasgor.no.1
+‎ 
+
+‎ 
 
 │ ּ ֶָ֢. ℋeavy 𝒮ean ℱictkin ...  ᶻ 𝗓 𐰁
 
-│
+‎ 
 
-│
+‎ 
 
 ▀▄▀▄▀▄ ℬorder ✦︎
 
@@ -24,11 +28,11 @@ feel free to call me any namez (except if it actually makes me uncomfortable) �
 
 _stares intensely into ur soul_
 
-│
+‎ 
 
 │ ㅤ♡
 
-│
+‎ 
 
 ᛝ i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc. ꨄ︎
 
