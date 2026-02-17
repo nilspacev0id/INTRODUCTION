@@ -10,7 +10,7 @@ feel free to call me any namez (except if it actually makes me uncomfortable) �
 ‎ 
 
 ‎ 
-‎   ɑׁׅ֮sk me / say something ~ : https://ngl.link/riuupecintanasgor.no.1
+‎   @ ɑׁׅ֮sk me / say something ~ : https://ngl.link/riuupecintanasgor.no.1
 ‎ 
 
 ‎ 
@@ -33,8 +33,11 @@ _stares intensely into ur soul_
 │ ㅤ♡
 
 ‎ 
+ᛝ i am actually scared when i talk with people and very nervous plus cautious / careful , i do not want to offend or worse. 
 
 ᛝ i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc. ꨄ︎
+
+ᛝ both talkative and silent .. tell me if i am annoying , but not in harsh way .
 
 ᛝ i block freely. dni darkshipper/ *SOME* proshippers. ⟢
 
